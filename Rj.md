@@ -1,0 +1,1 @@
+This week was a bit rough but i managed to improve some skills and coding. I understand more and more every week when we do these tasks. Looking forward to next week.
